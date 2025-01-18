@@ -1,2 +1,2 @@
 # tedxcrce
-2025 jan
+2025 Jan
